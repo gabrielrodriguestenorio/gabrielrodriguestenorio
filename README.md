@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 Como entrar em contato: garbielrodriguestenorio.07.212gmail.com
 - 😄 Pronomes: ele/dele
 - ⚡ Fato engraçado: não tankei o bostil
--->
+
