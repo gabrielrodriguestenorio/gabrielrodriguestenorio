@@ -1,12 +1,10 @@
-### Olá 👋
+### Olá Senhor.
 
-
-- 🔭 Atualmente estou trabalhando em: nada
-- 🌱 Atualmente estou aprendendo: Desenvolvimento de Sistemas
-- 👯 Estou pensando em colaborar com: nada
-- 🤔 Estou procurando ajuda com: nada
-- 💬 AMe pergunte sobre: nada
-- 📫 Como entrar em contato: garbielrodriguestenorio.07.212gmail.com
-- 😄 Pronomes: ele/dele
-- ⚡ Fato engraçado: não tankei o bostil
-
+- 🔭 Atualmente estou trabalhando em: Nada.
+- 🌱 Atualmente estou aprendendo: Desenvolvimento de Sistemas.
+- 👯 Estou pensando em colaborar com: Nada.
+- 🤔 Estou procurando ajuda com: Nada.
+- 💬 Me pergunte sobre: Nada.
+- 📫 Como entrar em contato: garbielrodriguestenorio.07.21@gmail.com
+- 😄 Pronomes: Ele/Dele.
+- ⚡ Fato engraçado: Não tankei o bostil.
